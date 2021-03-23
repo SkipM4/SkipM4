@@ -1,4 +1,3 @@
-## Hi there 👋
 I'm SkipM4,a senior high school student from China,now learning HTML.
 ----
 
