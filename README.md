@@ -6,6 +6,6 @@ I'm SkipM4,a collage student from China,now learning nothing.
 - Always been listening to music
 - Now using Intel NUC X15 Kit with Windows 10
 - My Blog: [skipm4.com](https://skipm4.com/)
-- Contact me: [Email](mailto:liteyuki@gmail.com) / [Telegram](https://t.me/skipm4/) / QQ: 2819627923
+- Contact me: [Email](mailto:liteyuki@gmail.com) / [Telegram](https://t.me/skipm4_ai/) / QQ: 2819627923
 - My Minecraft Server: [Litesakura](https://mc.litesakura.com/)
 ### Calm,think,operate.
