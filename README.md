@@ -8,4 +8,4 @@ I'm SkipM4.
 - My Blog: [skipm4.com](https://skipm4.com/)
 - Contact me: [Email](mailto:liteyuki@gmail.com) / [Telegram](https://t.me/skipm4_ai/)
 - My Minecraft Server: [Litesakura](https://mc.litesakura.com/)
-### Calm,think,operate.
+### The existence does not exist.
